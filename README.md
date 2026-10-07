@@ -1,2 +1,0 @@
-# 92jeetohack
-Newhack
